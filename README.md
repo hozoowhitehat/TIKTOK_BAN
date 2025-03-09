@@ -1,0 +1,2 @@
+# TIKTOK_BAN
+☠️ TIKTOK BANNED 🚫
